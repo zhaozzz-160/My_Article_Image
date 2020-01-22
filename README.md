@@ -1,1 +1,1 @@
-# My_Article_Image-
+# My_Article_Image
